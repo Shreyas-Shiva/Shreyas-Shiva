@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi 👋I'm Shreyas<br>I'm looking to collaborate on<br>I'm currently learning 
+# 💫 About Me:**
+Hi 👋I'm Shreyas<br>I'm looking to collaborate on<br>I'm currently learning **
 
 
 ## 🌐 Socials:
